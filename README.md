@@ -1,0 +1,1 @@
+# satyaminstitute.github.io
